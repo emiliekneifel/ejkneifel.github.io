@@ -1,1 +1,1 @@
-exhibition text for all the birds
+hosting text for all the birds
